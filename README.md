@@ -1,5 +1,6 @@
 S.SWAMYNATHAN
 CEO & MD
+fintra Software Pvt. Ltd.
 G1, MYM Estates, 
 6-3-680/8/8/5, Thakur Mansion Lane,
 Somajiguda, Hyderabad-500082
